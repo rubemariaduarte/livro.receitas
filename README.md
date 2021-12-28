@@ -2,4 +2,4 @@
 
 Bem vindo ao meu livro de receitas
 
-- Kibe vegetariano
+- Kibe
